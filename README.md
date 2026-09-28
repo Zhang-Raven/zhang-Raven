@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @zhang-Raven
 - 👀 I’m interested in hiking, cooking and coding(junior)
 - 🌱 I’m currently learning JAVA
-- 💞️ I’m looking to collaborate on web3
+- 💞️ I’m looking for friends~
 - 📫 How to reach me zrw.raven@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: $$$
